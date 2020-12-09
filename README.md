@@ -6,7 +6,7 @@ I post my projects, if you can call it that, I'm learning all the time.
 
 **You will find me here:**
 - [Cyferkolandia kCyfra](https://discord.gg/VJ9FGtvY7q)
-- [Hardware & Software Community](https://discord.gg/U2YgvYcQnH)
+- [Mighty Community](https://discord.gg/yrYfFFWute)
 
 **Languages I learn:**<br />
 <br />
