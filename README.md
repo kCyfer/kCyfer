@@ -4,9 +4,8 @@ I post my projects, if you can call it that, I'm learning all the time.
 <br />
 <br />
 
-**You will find me here:**
-- [Cyferkolandia kCyfra](https://discord.gg/VJ9FGtvY7q)
-- [Mighty Community](https://discord.gg/yrYfFFWute)
+**You will find me here (k435#7679):**
+- [Discord Craftserve](https://discord.gg/Gxekvr9uqz)
 
 **Languages I learn:**<br />
 <br />
